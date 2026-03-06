@@ -6,6 +6,6 @@
 
 ## Useful Links
 
-Refurbished Computers: [https://www.pc-shop.gr](https://www.pc-shop.gr)
+Refurbished Computers: [PC-Shop.gr](https://www.pc-shop.gr)
 
-Web Hosting Services: [https://alfahost.gr](https://alfahost.gr)
+Web Hosting Services: [AlfaHost.gr](https://alfahost.gr)
